@@ -1,0 +1,2 @@
+# Trapeze
+You're about to play the most entertaining and addicting game, so are you ready?   ****** About Little Trapeze Game ******  Little Trapeze is a beautiful challenge and adventure playing game with a lot of a nice characters just to entertain you ,it's also an addictive game-play depend on finger skills using adorable galaxy characters , you need Fingers Skill to keep wining and avoiding the obstacles in the same time without falling .
